@@ -1,1 +1,1 @@
-The Peace of Utrecht, signed in 1713, marked the end of the War of Spanish Succession and reshaped the global balance of power, leading to territorial realignments and trade agreements.
+The triangular trade, a system of trade routes between Europe, Africa, and the Americas, played a central role in the global economy of the 18th century, facilitating the exchange of goods, labor, and resources.
