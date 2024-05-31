@@ -1,1 +1,1 @@
-The triangular trade, a system of trade routes between Europe, Africa, and the Americas, played a central role in the global economy of the 18th century, facilitating the exchange of goods, labor, and resources.
+Silver played a crucial role in the global economy of the 17th century, with vast quantities of silver mined in Spanish colonies in the Americas and traded extensively in global markets.
