@@ -1,1 +1,1 @@
-Silver played a crucial role in the global economy of the 17th century, with vast quantities of silver mined in Spanish colonies in the Americas and traded extensively in global markets.
+The rise of mercantilism in the 18th century led to increased government intervention in the economy, including tariffs, subsidies, and trade monopolies aimed at promoting national wealth and power.
