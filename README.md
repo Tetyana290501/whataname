@@ -1,1 +1,1 @@
-The Dutch Republic emerged as a dominant economic power in the 17th century, with Amsterdam becoming a leading financial center and hub for international trade.
+Silver played a crucial role in the global economy of the 17th century, with vast quantities of silver mined in Spanish colonies in the Americas and traded extensively in global markets.
