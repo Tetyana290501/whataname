@@ -1,1 +1,1 @@
-The 18th century saw the emergence of the Industrial Revolution, beginning in Britain and later spreading to other parts of Europe and the world, leading to profound changes in economic production and society.
+The Age of Enlightenment, a period of intellectual and cultural transformation in Europe, fostered new ideas about economics, politics, and society, influencing economic thought and policy.
