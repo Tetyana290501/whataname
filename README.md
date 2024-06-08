@@ -1,1 +1,1 @@
-The Age of Enlightenment, a period of intellectual and cultural transformation in Europe, fostered new ideas about economics, politics, and society, influencing economic thought and policy.
+The rise of proto-industrialization in Europe during the 18th century laid the groundwork for the Industrial Revolution, with innovations in textile production, metallurgy, and agricultural technology.
