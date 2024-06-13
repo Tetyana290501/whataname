@@ -1,1 +1,1 @@
-The economic theories of mercantilism dominated European economic thought in the 17th century, advocating for state intervention in the economy to promote national wealth and power.
+The War of Spanish Succession, fought from 1701 to 1714, disrupted global trade and led to territorial realignments in Europe and the Americas, impacting economic stability and growth.
