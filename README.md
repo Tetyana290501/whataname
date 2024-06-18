@@ -1,1 +1,1 @@
-The Great Depression of the late 19th century, triggered by financial panics and economic downturns, led to widespread unemployment, business failures, and social unrest in many countries.
+The British Empire emerged as the dominant global economic power in the 18th century, fueled by colonial expansion, maritime trade, and industrialization.
