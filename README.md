@@ -1,1 +1,1 @@
-The British Empire emerged as the dominant global economic power in the 18th century, fueled by colonial expansion, maritime trade, and industrialization.
+The Opium Wars between China and Britain in the mid-19th century, sparked by British attempts to expand the opium trade, resulted in China ceding Hong Kong and opening additional ports to foreign trade.
