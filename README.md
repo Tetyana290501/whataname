@@ -1,1 +1,1 @@
-The Opium Wars between China and Britain in the mid-19th century, sparked by British attempts to expand the opium trade, resulted in China ceding Hong Kong and opening additional ports to foreign trade.
+The global economy of the 19th century was increasingly interconnected through trade networks, financial markets, and the exchange of goods, capital, and labor across borders.
