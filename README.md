@@ -1,1 +1,1 @@
-The rise of proto-industrialization in Europe during the 18th century laid the groundwork for the Industrial Revolution, with innovations in textile production, metallurgy, and agricultural technology.
+European colonial powers, such as Spain, Portugal, England, France, and the Netherlands, competed for control of overseas territories and resources to bolster their economies.
