@@ -1,1 +1,1 @@
-European colonial powers, such as Spain, Portugal, England, France, and the Netherlands, competed for control of overseas territories and resources to bolster their economies.
+The British Empire emerged as the dominant global economic power in the 18th century, fueled by colonial expansion, maritime trade, and industrialization.
