@@ -1,1 +1,1 @@
-Tulip mania, a speculative bubble in the Netherlands during the 1630s, saw the prices of tulip bulbs soar to exorbitant levels before crashing, causing financial ruin for many investors.
+The economic theories of classical economics, espoused by thinkers like Adam Smith and David Ricardo, laid the foundation for modern economic thought and policy, emphasizing free markets, competition, and self-regulation.
