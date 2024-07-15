@@ -1,1 +1,1 @@
-The transatlantic slave trade, which had been abolished by many European countries by the early 19th century, was replaced by the system of indentured labor, particularly in the British Empire's colonies.
+The global economy of the 19th century was increasingly interconnected through trade networks, financial markets, and the exchange of goods, capital, and labor across borders.
