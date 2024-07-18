@@ -1,1 +1,1 @@
-The global economy of the 19th century was increasingly interconnected through trade networks, financial markets, and the exchange of goods, capital, and labor across borders.
+The global economy of the 19th century was characterized by the expansion of colonial empires, with European powers competing for territorial control, resources, and markets in Africa, Asia, and the Americas.
