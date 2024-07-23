@@ -1,1 +1,1 @@
-The Bank of England, founded in 1694, became a central institution in the British economy, issuing currency, managing government debt, and facilitating commercial banking operations.
+The War of Spanish Succession, fought from 1701 to 1714, disrupted global trade and led to territorial realignments in Europe and the Americas, impacting economic stability and growth.
