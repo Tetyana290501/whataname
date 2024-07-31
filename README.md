@@ -1,1 +1,1 @@
-The British Empire emerged as the dominant global economic power in the 18th century, fueled by colonial expansion, maritime trade, and industrialization.
+The rise of mercantilism in the 18th century led to increased government intervention in the economy, including tariffs, subsidies, and trade monopolies aimed at promoting national wealth and power.
