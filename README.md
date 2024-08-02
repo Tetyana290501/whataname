@@ -1,1 +1,1 @@
-The spread of capitalism in the 19th century was accompanied by social upheaval, including labor strikes, protests, and the rise of socialist and labor movements advocating for workers' rights and social reforms.
+The Treaty of Paris, signed in 1763, marked the end of the Seven Years' War and reshaped the global balance of power, leading to territorial realignments and trade agreements.
